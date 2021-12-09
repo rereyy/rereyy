@@ -7,4 +7,4 @@
 
 ### Connect with me:
 
-[![](https://discord.c99.nl/widget/theme-4/326369659832107010.png)](https://discord.gg/TXF3hBj)
+[![](https://discord.c99.nl/widget/theme-4/326369659832107010.png)](https://discord.gg/tDMR9pP3a6)
